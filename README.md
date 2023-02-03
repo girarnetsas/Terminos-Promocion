@@ -73,4 +73,4 @@ Los Participantes reconocen y aceptan que la ley aplicable para cualquier contro
 
 Los presentes Términos y Condiciones se encuentran disponibles para su consulta
 
-durante el Periodo de la Promoción en [www.girarnet.com.co](http://www.girarnet.com.co/)
+durante el Periodo de la Promoción en [Términos y Condiciones](https://github.com/girarnetsas/Terminos-Promocion)
