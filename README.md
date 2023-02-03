@@ -2,7 +2,7 @@
     <img src="https://drive.google.com/uc?export=view&id=1kiBuc-MVf_GpRf583ZUj8jRf9zSwHIae" alt="drawing" width="500"/>
   </p>
 
-<h1 align="center">Material Bread</h1>
+<h1 align="center">TÉRMINOS Y CONDICIONES</h1>
 
 Los presentes son los Términos y Condiciones bajo los cuales se desarrollará y realizará la actividad promocional “DESCUENTO DE POR VIDA EN CONECTIVIDAD” (en adelante “LA PROMOCIÓN”). La persona que desee participar (en adelante “EL PARTICIPANTES”) reconoce y acepta que el desarrollo y realización de esta actividad promocional se sujetará única y exclusivamente a estos Términos y Condiciones.
 
