@@ -1,4 +1,6 @@
-[](https://drive.google.com/uc?export=view&id=1kiBuc-MVf_GpRf583ZUj8jRf9zSwHIae)
+ <p align="center">
+    <img src="https://drive.google.com/uc?export=view&id=1kiBuc-MVf_GpRf583ZUj8jRf9zSwHIae" alt="drawing" width="500"/>
+  </p>
 
 # TÉRMINOS Y CONDICIONES
 
