@@ -3,7 +3,7 @@
   </p>
 
  <p align="center">
-    <h1> TÉRMINOS Y CONDICIONES</h1>
+    <h1> TÉRMINOS Y CONDICIONES </h1>
  </p>
 
 Los presentes son los Términos y Condiciones bajo los cuales se desarrollará y realizará la actividad promocional “DESCUENTO DE POR VIDA EN CONECTIVIDAD” (en adelante “LA PROMOCIÓN”). La persona que desee participar (en adelante “EL PARTICIPANTES”) reconoce y acepta que el desarrollo y realización de esta actividad promocional se sujetará única y exclusivamente a estos Términos y Condiciones.
