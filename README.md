@@ -50,9 +50,7 @@ El Organizador se reserva el derecho de, a su exclusiva discreción, invalidar c
 ## SEXTA: OTROS TEMAS LEGALES
 
 1. El descuento de esta Promoción es personal e intransferible.
-2. Esta Promoción no es acumulable con otros descuentos y/o promociones y no
-
-es canjeable por efectivo.
+2. Esta Promoción no es acumulable con otros descuentos y/o promociones y no es canjeable por efectivo.
 
 1. El Organizador es exclusivo y directamente responsable frente a los Participantes por la calidad de los productos y/o servicios, así como del cumplimiento de todas las normas existentes y por existir (durante el Periodo de la Promoción) relacionadas con la producción, normas de sanidad, comercialización y el uso de los productos objeto de la Promoción. GirarNET no provee producto y/o servicio alguno, ni se hace responsable por los productos ni servicios objeto de la Promoción, ni por errores humanos, técnicos o de computadoras que hagan que no se reciba el descuento de esta Promoción.
 2. Ni GirarNET, ni sus designados, ni cesionarios, ni alguno de sus respectivos directivos, empleados, representantes y/o agentes, tendrán responsabilidad por daños que se deban total o parcialmente, directa o indirectamente, por la aceptación de los productos o servicios ofrecidos por el Organizador, incluyendo daños físicos, mentales o patrimoniales, grave daño corporal o la muerte.
