@@ -11,7 +11,7 @@ ESTA PROMOCION LA ORGANIZA EXCLUSIVAMENTE GIRARNET SAS DOMICILIADO EN GIRARDOTA,
 
 ## MECÁNICA DE LA PROMOCIÓN
 
-La Promoción se desarrollará para brindar los siguientes descuentos a los Participantes que cumplan con los requisitos de estos Términos y Condiciones: Disfruta del **Plan Basic** de internet **50 Megas Simétricas** por **$65.000** para **Estratos 1** y **2**, de forma continua, siempre y cuando se mantenga la suscripción activa, es decir, los pagos al día.
+La Promoción se desarrollará para brindar los siguientes descuentos a los Participantes que cumplan con los requisitos de estos Términos y Condiciones: Disfruta del **Plan Basic** de internet **50 Megas Simétricas** por **$66.500** para **Estratos 1** y **2**, de forma continua, siempre y cuando se mantenga la suscripción activa, es decir, los pagos al día.
 
 Válido hasta agotar los **1100 Cupos** (mil cien)  durante el periodo de la promoción, que comienza en el momento que es instalado EL PARTICIPANTE hasta que cancele su suscripción, cambie de plan de suscripción o si deja de mantener un método válido de pago, perderá el beneficio de esta oferta promocional (el “Periodo de la Promoción”).
 
